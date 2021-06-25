@@ -1,0 +1,1 @@
+O curso até o momento está sendo muito bom. Consigo entender muito bem o assunto que os professores falam, além de um excelente suporte disponível para todos. Eséro conseguir ficar até a fase fina ;-)
